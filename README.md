@@ -1,0 +1,1 @@
+Panoramic360 presents you to have a 360° view of the landscape, which you wish to present on the screen.This feature will help the viewers to get a live three-dimensional view of a particular panorama.When you move through the screen, you get the feel of a 360° observation of a landscape. 
